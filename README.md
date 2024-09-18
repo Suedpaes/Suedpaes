@@ -10,4 +10,4 @@ Meu nome é Sued
 
 0001115277832sp@al.educacao.sp.gov.br
 
-![descrição do GIF](https://tenor.com/pt-BR/view/haikyuu-dance-niku-niku-gif-3404315761983197734)
+![](https://tenor.com/pt-BR/view/haikyuu-dance-niku-niku-gif-3404315761983197734)
